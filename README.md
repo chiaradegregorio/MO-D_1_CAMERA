@@ -1,1 +1,0 @@
-# MO-D_1_CAMERA
